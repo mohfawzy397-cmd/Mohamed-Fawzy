@@ -20,7 +20,7 @@ I am a passionate Data Analyst with experience in transforming raw data into mea
 - Developed a complete sales analysis dashboard
 - Created KPIs for revenue, profit, and orders
 
-🔗 [https://www.linkedin.com/posts/mohamed-fawzy-6583692b8_powerbi-dataanalytics-businessintelligence-activity-7451701045199630336-jLrc?utm_source=social_share_send&utm_medium=android_app&rcm=ACoAAEw6SmQBOij5RmeKFW00Auk5RBLPCmb_twI&utm_campaign=share_via](#)
+🔗 [https://www.linkedin.com/posts/mohamed-fawzy-6583692b8_powerbi-dataanalytics-businessintelligence-activity-7451701045199630336-jLrc?utm_source=social_share_send&utm_medium=android_app&rcm=ACoAAEw6SmQBOij5RmeKFW00Auk5RBLPCmb_twI&utm_campaign=share_via](#adventurework.jpg)
 
 ---
 
